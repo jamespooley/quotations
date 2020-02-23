@@ -1,5 +1,5 @@
 # 🗣️ quotations
-Quotations I like the sound of, posting != endorsement in all cases, etc. etc.
+Quotations I like the sound of or want to remember for one reason or another. Posting != endorsement in all cases, etc. etc.
 
 ### Music
 
